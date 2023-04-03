@@ -1,4 +1,4 @@
-![](https://github.com/CarlosCarPerz/onlyPics/blob/main/pics/Carlos%20Carvajal.png?raw=true)
+![](https://github.com/CarlosCarPerz/onlyPics/blob/main/pics/Carlos%20Carvajal%20COMPRIMIDO.png?raw=true)
 
   <p align="center">
     <a href="mailto:carlos.carvajal.per@gmail.com">
